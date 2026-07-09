@@ -2,9 +2,11 @@
 
 `Builder` &nbsp;·&nbsp; `AI Consultant` &nbsp;·&nbsp; `Filmmaker`
 
-I went from cutting videos to shaping how companies think about media entirely.
+I started with coding, then editing and over the years I've edited for
+all the way from small startups to million dollar agencies 🇦🇺🇺🇸
 
-I've been doing this since I was 9. Started with editing, figured out web stuff on the side, then began founding companies. Over the years I've edited for startups across the US, run product at a media company, and now work as Media COO for a UK brand while running my own agency.
+But it's evolved into a lot more than that.
+Now I'm helping companies figure out AI & founders to build personal brands.
 
 Checkout my [YouTube](https://www.youtube.com/@ItzGanidhu), [X (Twitter)](https://x.com/ItzGanidhu), [Instagram](https://www.instagram.com/ganidhukandepola/), or [LinkedIn](https://www.linkedin.com/in/ganidhuk/).
 
