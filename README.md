@@ -13,5 +13,5 @@ Checkout my [YouTube](https://www.youtube.com/@ItzGanidhu), [X (Twitter)](https:
 ## What I'm Creating
 
 - **[YouTube / Vlogs](https://www.youtube.com/@ItzGanidhu)** — Sharing raw, behind-the-scenes vlogs documenting my journey
-- **[YouTube / Tech & AI](https://www.youtube.com/@ItzGanidhu)** — Uploading videos covering tech, unboxings, and Al Tools.
+- **[YouTube / Tech & AI](https://www.youtube.com/@ItzGanidhu)** — Uploading videos covering tech, unboxings, and AI Tools.
 - **iPhone Creator Kit** — A kit putting together my favourite iPhone settings, how I take high quality iPhone pictures, and a collection of my presets.
